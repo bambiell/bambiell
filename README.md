@@ -9,5 +9,5 @@
 </p>
 
 <p align="left">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=darkgoldenrod&right_color=tan&left_text=%E2%84%98&v=9"/>
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=royalblue&right_color=lightblue&left_text=%E2%84%98&v=9"/>
 </p>
