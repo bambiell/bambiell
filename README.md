@@ -5,7 +5,7 @@
 ![img](https://i.postimg.cc/FsSW-2bcP/Khong-Co-Tieu-De841-20260610172313.png)
 
 <p align="center">
-<img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=28&duration=4000&pause=1000&color=C19A6B&center=true&vCenter=true&width=800&lines=%EC%A0%80%ED%9D%AC+%EA%B0%80%EA%B2%8C%EB%8A%94+%EC%96%B8%EC%A0%9C%EB%82%98+%EC%B9%9C%EC%A0%88%ED%95%9C+%EB%B6%84%EB%93%A4%EC%9D%84+%ED%99%98%EC%98%81%ED%95%A9%EB%8B%88%EB%8B%A4." />
+<img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=28&duration=4000&pause=1000&color=FFFFFF&center=true&vCenter=true&width=800&lines=%EB%AC%B8%EC%9D%98%EC%82%AC%ED%95%AD%EC%9D%B4+%EC%9E%88%EC%9C%BC%EC%8B%9C%EB%A9%B4+%EC%A0%9C+%EB%94%94%EC%8A%A4%EC%BD%94%EB%93%9C%EB%A1%9C+%EC%97%B0%EB%9D%BD%ED%95%B4+%EC%A3%BC%EC%84%B8%EC%9A%94." />
 </p>
 
 <p align="left">
