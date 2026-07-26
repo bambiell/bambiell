@@ -22,3 +22,7 @@
 href="https://www.instagram.com/bambihrs.ev/">ɪɢ</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 </p>
 <p align="center">
+
+<p align="right">
+  <img src="https://i.pinimg.com/originals/60/c5/54/60c554af0ce816d9626dfc8f36316fe3.gif" width="45">
+</p>
