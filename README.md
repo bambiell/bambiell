@@ -44,3 +44,21 @@ href="https://www.instagram.com/bambihrs.ev/">ɪɢ</a>&nbsp;&nbsp;&nbsp;&nbsp;&n
   <img src="https://i.postimg.cc/6Q4BtJDB/Khong-Co-Tieu-De915-20260727051418.png" width="100%">
 </p>
 </h3>
+
+
+<table>
+<tr>
+
+<td valign="middle">
+
+### ♯interest
+
+*kpop, kdrama, danmei, manhua - manhwa - novel, gsgw, orv, dod, mha, aot, csm, jjk, etc.*
+
+</td>
+
+<td width="170" align="right" valign="top">
+  <img src="https://i.postimg.cc/rmzx8mqg/Khong-Co-Tieu-De916-20260727055510.png" width="150">
+</td>
+</tr>
+</table>
