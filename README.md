@@ -14,3 +14,20 @@
 <p align="center">
   ˙✧˖°📷 ༘ ⋆｡˚
 </p>
+
+<table align="center">
+  <tr>
+    <td align="center" width="250">
+      <img src="https://i.postimg.cc/RVRbSKbb/Khong-Co-Tieu-De911-20260726150344.png" width="400">
+    </td>
+    <td width="300">
+
+<b><a href="#"><img src="https://img.shields.io/badge/nei%20%2F%20bambi%20%2F%20beaun-89CFF0?style=for-the-badge&labelColor=89CFF0&color=89CFF0"></a></b>
+
+✦ bisexual  
+<br>✦ 20yo  
+<br>✦ isfp
+
+   </td>
+  </tr>
+</table>
