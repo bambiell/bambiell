@@ -14,3 +14,11 @@
 <p align="center">
   ˙✧˖°📷 ༘ ⋆｡˚
 </p>
+
+<p align="center">
+<a href="https://guns.lol/bbambiie/">ɢᴜɴs</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="https://brookeartzz.atabook.org/">ᴀᴛᴀʙᴏᴏᴋ</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a
+href="https://www.instagram.com/bambihrs.ev/">ɪɢ</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+</p>
+<p align="center">
