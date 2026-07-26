@@ -23,6 +23,18 @@ href="https://www.instagram.com/bambihrs.ev/">ɪɢ</a>&nbsp;&nbsp;&nbsp;&nbsp;&n
 </p>
 <p align="center">
 
-<p align="right">
-  <img src="https://i.pinimg.com/originals/60/c5/54/60c554af0ce816d9626dfc8f36316fe3.gif" width="45">
-</p>
+<table>
+<tr>
+<td width="170" valign="top">
+  <img src="https://i.postimg.cc/G2RxdrH7/Khong-Co-Tieu-De916-20260727055826.png" width="150">
+</td>
+
+<td valign="middle">
+
+### ♯nei / bam / beaun / xeil / waldo / mii
+
+*Currently, I only use the names **nei**, **bam** and **beaun**.*
+
+</td>
+</tr>
+</table>
