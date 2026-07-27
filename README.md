@@ -70,6 +70,10 @@ href="https://www.instagram.com/bambihrs.ev/">ɪɢ</a>&nbsp;&nbsp;&nbsp;&nbsp;&n
 </h3>
 
 <p align="center">
+₍ᐢ. .ᐢ₎ ₊˚⊹♡
+</p>
+
+<p align="center">
 ______________________________
 </p>
 
