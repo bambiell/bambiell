@@ -68,3 +68,11 @@ href="https://www.instagram.com/bambihrs.ev/">ɪɢ</a>&nbsp;&nbsp;&nbsp;&nbsp;&n
   <img src="https://i.postimg.cc/bJ7cdJSH/Khong-Co-Tieu-De915-20260727051508.png" width="100%">
 </p>
 </h3>
+
+
+<p>
+  <img src="https://i.postimg.cc/cgC8VmMW/your-image.png" width="110" align="left">
+
+### dni
+anti cortis, bash my keonho, pmg, people under 14yo 😅
+</p>
