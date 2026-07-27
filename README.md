@@ -69,10 +69,17 @@ href="https://www.instagram.com/bambihrs.ev/">ɪɢ</a>&nbsp;&nbsp;&nbsp;&nbsp;&n
 </p>
 </h3>
 
+<p align="center">
+______________________________
+</p>
 
 <p>
   <img src="https://i.postimg.cc/cgC8VmMW/your-image.png" width="110" align="left">
 
 ### dni
 anti cortis, bash my keonho, pmg, people under 14yo 😅
+</p>
+
+<p align="center">
+______________________________
 </p>
