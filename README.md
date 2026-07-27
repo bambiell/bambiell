@@ -80,7 +80,7 @@ ______________________________
   <img src="https://i.postimg.cc/cgC8VmMW/your-image.png" width="110" align="left">
 
 ### dni
-people under 14yo
+people under 15yo
 
 </p>
 
