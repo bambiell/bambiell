@@ -81,7 +81,7 @@ ______________________________
   <img src="https://i.postimg.cc/cgC8VmMW/your-image.png" width="110" align="left">
 
 ### dni
-anti cortis, bash my keonho, pmg, bias seungri, bllk, people under 14yo 😅
+people under 14yo
 
 </p>
 
