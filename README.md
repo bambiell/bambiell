@@ -16,9 +16,10 @@
 </p>
 
 <p align="center">
-<a href="https://brookeartzz.atabook.org/">ᴀᴛᴀʙᴏᴏᴋ</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="https://brookeartzz.atabook.org/">atab</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="https://guns.lol/bbambiie">guns</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a
-href="https://www.instagram.com/bambihrs.ev/">ɪɢ</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+href="https://www.instagram.com/bambihrs.ev/">ins</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 </p>
 <p align="center">
 
