@@ -78,8 +78,9 @@ ______________________________
 
 ### dni
 anti cortis, bash my keonho, pmg, people under 14yo 😅
+
 </p>
 
 <p align="center">
-______________________________
+_____________________
 </p>
